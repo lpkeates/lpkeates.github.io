@@ -14,4 +14,5 @@ Expert: Mathematics (sorry, I am not Albert Einstein since my IQ is slightly low
 
 # Social Media
 Discord: MrDragonBoi#7894
+
 Public email: None at the moment
